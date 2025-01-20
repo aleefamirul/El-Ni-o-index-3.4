@@ -1,1 +1,1 @@
-# El-Ni-o-index-3.4
+# El-Niño-index-3.4
